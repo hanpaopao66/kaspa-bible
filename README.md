@@ -22,3 +22,4 @@
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/6.jpg)
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/C4E8652879116CCCCB11C6D50ECEC455.jpg)
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/5F843D3463FFC2DDF109943FCDD4F115.jpg)
+ ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/09EC928CA7EF10BDFCAE90DF93274A10.jpg)
