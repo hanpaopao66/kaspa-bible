@@ -7,6 +7,7 @@
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/5.jpg)
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/F08FF2D783C3D93F426C55064D1A6AEF.jpg)
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/7EBD73B520D8C241E0492FF59FE8D66C.png)
+ ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2E15A6782535C5A3B07B5898E58BFE1E.jpg)
  
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/QQ%E5%9B%BE%E7%89%8720230302214624.png)
  
