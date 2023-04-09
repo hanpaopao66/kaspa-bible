@@ -4,6 +4,8 @@
 ## 记录那些kaspa圣经
 ### Record those kaspa bibles
 
+ ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/v2-5ecd73af80b4ea71b1e864e5cbc6ac74_r.jpg)
+
 # 2022年5月
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/5.jpg)
 # 2022年7月
