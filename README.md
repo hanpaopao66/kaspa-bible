@@ -1,8 +1,8 @@
 # kaspa圣经
 # kaspabible
 
-## 记录那些kaspa圣经，欢迎一起贡献记录有趣的瞬间
-### Record those kaspa bibles, welcome to contribute to record interesting moments
+## 记录那些kaspa圣经
+### Record those kaspa bibles
 
 # 2022年5月
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/5.jpg)
