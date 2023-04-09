@@ -48,7 +48,7 @@
 # 2023年3月
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/QQ图片20230327220138.jpg)
 # 2022年11月
- ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/1111112.jpg
+ ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/1111112.jpg)
 # 2023年3月
  ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/3333333.jpg)
 # 2022年8月
