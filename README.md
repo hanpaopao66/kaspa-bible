@@ -67,3 +67,12 @@
 ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/111.jpg)
 # 2023年5月
 ![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2222.png)
+# 2023年6月
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.58.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.51.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.07.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.26.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.18.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.30.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.55.37.jpg)
+![image](https://github.com/hanpaopao66/kaspabible/blob/main/imgs/2023-06-16 09.54.52.jpg)
